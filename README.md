@@ -1,4 +1,4 @@
-TOP 10 FREE SRTRESSERS BOOTERS DNS ATACKS
+TOP 10 FREE IP STRESSERS BOOTERS DNS ATACKS
 https://www.stressthem.to/hub
 
 https://ip-stresser.co/panel/dashboard/?p=l4hub
